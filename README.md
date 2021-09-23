@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @corgigal
-- 👀 I’m interested in ...corgis (duh), plants, Jeopardy, and 
+- 👀 I’m interested in ...corgis (duh), plants, Jeopardy, and being outside! 
 - 🌱 I’m currently learning ...how to use Github!
 - 💞️ I’m looking to collaborate on ...anything and everything
 - 📫 How to reach me ...
